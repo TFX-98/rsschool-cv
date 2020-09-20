@@ -1,5 +1,5 @@
 
-# Hi. My name is Egor Chaika and this is my resume
+# Hi. My name is Egor Chaika and this is my resume.
 **_Tel:_**
 [+375 (25) 753-14-08](tel:+375257531408)  
 **_E-mail:_**
